@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lafemorax
+- 👀 I’m interested in writing fiction stories and memoirs only I find myself learning how to code and morph my creative writing abilities that transcends human language.
+- 🌱 I’m currently learning the basics of coding without any expectations tied upon myself like most people do like planning for a future lucrative career or something like that. I just don't want to stop learning new things. Besides, I own websites and I work as a web content writer and content marketer, so it makes a lot of sense why I need to understand how the internet works, just like how a driver wants to know the car he's driving. 
+- 💞️ I’m looking to collaborate on future coding projects with anyone who can help me out through this new journey. 
+- 📫 How to reach me? Send your email at lafemorax@gmail.com 
+- Websites I handle: https://mgaspary.com / https://bitchychicken.com
